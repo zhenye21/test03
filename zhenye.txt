@@ -1,0 +1,10 @@
+qq
+ww
+ee
+rr
+tt
+yy
+uu
+ii
+oo
+pp
